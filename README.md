@@ -1,2 +1,2 @@
 # Deniz_Alti
-Denizaltı yapay zeka kodları, Python, OpenCV, 
+Teknofest için YUNUS takımının denizaltısı yapılırken denenen deneysel bir kodtur.
