@@ -19,3 +19,6 @@ Burada yansımalarda dahil alıglama yapılıyor.
 
 Görüldüğü üzere tamamı algılanmıyor suyun altına
 
+https://www.blogger.com/blog/post/edit/3929869479668241750/8159855289755803607?hl=tr 
+
+buda bizim Bloğumuz. Burada nasıl yaptık? Hangi sorunlarla karşılaştık onlar anlatılmıştır.
