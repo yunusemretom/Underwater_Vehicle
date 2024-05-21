@@ -19,6 +19,6 @@ Burada yansımalarda dahil alıglama yapılıyor.
 
 Görüldüğü üzere tamamı algılanmıyor suyun altına
 
-https://yunusemretom.blogspot.com/2024/01/insansiz-su-alti-sistemi.html 
+(https://yunusemretom.notion.site/nsans-z-Su-Alt-Sistemleri-cc91a10812e34a06b9ee04a123dee759)
 
 buda bizim Bloğumuz. Burada nasıl yaptık? Hangi sorunlarla karşılaştık onlar anlatılmıştır.
